@@ -1,3 +1,2 @@
 # Creation
-Things I create and share
-Hi!! to all
+Hi!! to all. In creation, the things I create and share with rest.
